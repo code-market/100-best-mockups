@@ -1,4 +1,4 @@
-# 100-best-mockups
+# 100 Free & Premium mockups for download
 100 best free &amp; premium mockups
 Want to know what a mockup is, why you need it, and how to use it? Or are you already a professional designer and looking for fresh ideas or high-quality mockups for your work? All of this and much more you will find in this article.
 
