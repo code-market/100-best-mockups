@@ -612,3 +612,5 @@ From vector icons to super realistic templates for designers from all areas , yo
 #### [20\. Design Shack](https://designshack.net/mockup-templates/)
 
 And last, but not least, this website contains a variety of clothing mockups that you won't find on other sites.
+
+This original article here - https://code.market/article/100-mockups-for-download/ 
